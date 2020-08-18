@@ -1,1 +1,0 @@
-## georgikjoseph.github.io
